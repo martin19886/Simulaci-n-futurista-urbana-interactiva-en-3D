@@ -1,1 +1,1 @@
-# Simulaci-n-futurista-urbana-interactiva-en-3D
+https://aistudio.google.com/app/apps/drive/1BBWpAyyKYWz7C246NHcc1ejDGyEbCbz0?showPreview=true&resourceKey=
